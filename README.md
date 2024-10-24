@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DeepuVarma1999
 - 👀 I’m interested in singing,dancing,reading books
-- 🌱 I’m currently working in TCS
+- 🌱 I’m currently working in TCS, Hyderabad.
 - 📫 How to reach me-mail me on deepikachittari@gmail.com
 - ⚡ Nature lover,prefer loneliness
 
